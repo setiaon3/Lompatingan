@@ -1,0 +1,2 @@
+# Lompatingan
+safelink lompatingan
